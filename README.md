@@ -1,0 +1,2 @@
+# tokenscan
+Token scanIt’s a new cryptocurrency voting and promoting platform that commit you to take an important part of developing the Token Scan. With this platform, we willingly to great success achievement and build a well-known brand in the crypto community. Token Scan will able to have utility and many real use cases that purposely will be a safe investment as well as it will be on our platform and have information about tokenomics. Join With Us! 🚀
